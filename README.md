@@ -1,1 +1,1 @@
-"Mad Max: Fury Road" (2015), directed by George Miller, earned critical acclaim and multiple Academy Awards, revitalizing the "Mad Max" series after a decades-long hiatus.
+The series premiered on HBO on April 17, 2011, and concluded on May 19, 2019, spanning eight seasons.
