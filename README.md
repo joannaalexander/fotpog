@@ -1,1 +1,1 @@
-The series premiered on HBO on April 17, 2011, and concluded on May 19, 2019, spanning eight seasons.
+HBO has announced multiple spin-off projects set in the "Game of Thrones" universe, exploring different time periods and regions.
