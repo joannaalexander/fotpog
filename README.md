@@ -1,1 +1,1 @@
-HBO has announced multiple spin-off projects set in the "Game of Thrones" universe, exploring different time periods and regions.
+The phrase "winter is coming" became a popular catchphrase, symbolizing impending danger or change.
