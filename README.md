@@ -1,1 +1,1 @@
-Christopher Nolan's "Memento" (2000) captivated audiences with its innovative narrative structure, playing scenes in reverse to mirror the protagonist's memory loss.
+"Parasite" (2019), directed by Bong Joon-ho, defied genre conventions to become the first non-English language film to win the Academy Award for Best Picture.
