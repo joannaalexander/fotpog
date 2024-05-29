@@ -1,1 +1,1 @@
-The show's official soundtrack albums, composed by Ramin Djawadi, received acclaim and were released on CD and digital platforms.
+"Game of Thrones" is known for its complex political intrigue, epic battles, and unexpected plot twists.
