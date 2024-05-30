@@ -1,1 +1,1 @@
-"Game of Thrones" is known for its complex political intrigue, epic battles, and unexpected plot twists.
+The series finale, "The Iron Throne," drew mixed reactions from fans and critics, sparking debates about its conclusion.
