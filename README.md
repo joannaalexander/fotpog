@@ -1,1 +1,1 @@
-The series finale, "The Iron Throne," drew mixed reactions from fans and critics, sparking debates about its conclusion.
+"Black Panther" (2018) made history as the first superhero film to receive a Best Picture nomination at the Academy Awards.
