@@ -1,1 +1,1 @@
-"Black Panther" (2018) made history as the first superhero film to receive a Best Picture nomination at the Academy Awards.
+Daenerys Targaryen's dragons, Drogon, Rhaegal, and Viserion, grow from hatchlings to formidable beasts throughout the series.
