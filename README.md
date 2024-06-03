@@ -1,1 +1,1 @@
-Daenerys Targaryen's dragons, Drogon, Rhaegal, and Viserion, grow from hatchlings to formidable beasts throughout the series.
+"Gravity" (2013), directed by Alfonso Cuarón, pushed the boundaries of visual effects and immersive storytelling, earning critical acclaim and multiple Academy Awards.
