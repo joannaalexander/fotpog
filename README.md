@@ -1,1 +1,1 @@
-"Gravity" (2013), directed by Alfonso Cuarón, pushed the boundaries of visual effects and immersive storytelling, earning critical acclaim and multiple Academy Awards.
+The show received widespread acclaim for its production values, including cinematography, visual effects, and makeup design.
