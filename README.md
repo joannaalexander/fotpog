@@ -1,1 +1,1 @@
-The show received widespread acclaim for its production values, including cinematography, visual effects, and makeup design.
+Dragons, direwolves, and White Walkers are among the fantastical elements in the show's rich mythology.
