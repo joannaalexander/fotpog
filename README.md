@@ -1,1 +1,1 @@
-Dragons, direwolves, and White Walkers are among the fantastical elements in the show's rich mythology.
+"Game of Thrones" won the Primetime Emmy Award for Outstanding Drama Series four times, in 2015, 2016, 2018, and 2019.
