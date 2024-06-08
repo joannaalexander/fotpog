@@ -1,1 +1,1 @@
-"Game of Thrones" won the Primetime Emmy Award for Outstanding Drama Series four times, in 2015, 2016, 2018, and 2019.
+"Donnie Darko" (2001), directed by Richard Kelly, gained a cult following for its enigmatic storyline and memorable performances, including Jake Gyllenhaal's.
