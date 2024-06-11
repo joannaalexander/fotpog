@@ -1,1 +1,1 @@
-"Spirited Away" (2001), directed by Hayao Miyazaki, became the first non-English language film to win the Academy Award for Best Animated Feature.
+Several actors from the series, including Emilia Clarke, Peter Dinklage, and Lena Headey, received Emmy nominations for their performances.
