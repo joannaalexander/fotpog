@@ -1,1 +1,1 @@
-Several actors from the series, including Emilia Clarke, Peter Dinklage, and Lena Headey, received Emmy nominations for their performances.
+"Interstellar" (2014), directed by Christopher Nolan, utilized practical effects and scientific accuracy to depict space travel, immersing audiences in its epic narrative.
