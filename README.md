@@ -1,1 +1,1 @@
-The prequel series "House of the Dragon," focusing on the Targaryen dynasty, is set to premiere in the near future.
+Fans of "Game of Thrones" are known for their passionate dedication, creating fan art, cosplay, and online forums to discuss theories and analysis.
