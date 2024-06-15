@@ -1,1 +1,1 @@
-Fans of "Game of Thrones" are known for their passionate dedication, creating fan art, cosplay, and online forums to discuss theories and analysis.
+Despite its divisive final season, "Game of Thrones" remains one of the most influential and talked-about television series of the 21st century.
