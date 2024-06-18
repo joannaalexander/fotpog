@@ -1,1 +1,1 @@
-"La La Land" (2016) famously had its Best Picture win mistakenly announced at the Oscars, only for "Moonlight" to be revealed as the actual winner.
+Christopher Nolan's "Memento" (2000) captivated audiences with its innovative narrative structure, playing scenes in reverse to mirror the protagonist's memory loss.
