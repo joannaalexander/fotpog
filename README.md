@@ -1,1 +1,1 @@
-Maisie Williams (Arya Stark) and Sophie Turner (Sansa Stark) auditioned for each other's roles initially.
+Charlize Theron's transformative performance as serial killer Aileen Wuornos in "Monster" (2003) earned her the Academy Award for Best Actress.
