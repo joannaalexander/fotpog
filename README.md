@@ -1,1 +1,1 @@
-Peter Dinklage, who portrayed Tyrion Lannister, won four Primetime Emmy Awards for his performance.
+Composer Ramin Djawadi created the iconic theme music and score, enhancing the show's atmosphere and emotional impact.
